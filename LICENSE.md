@@ -1,4 +1,4 @@
-# 
+# Enhance GIMP for PC | GIMP for Windows with GIMP for PC | GIMP for Windows rare Script: color-correction & 3D-editing, the #1 script. Includes color-correction and 3D-editing for
 
 
 
